@@ -1,5 +1,5 @@
 # tea-bility
-Encouraging people with all abilities to self-care and restore
+Encouraging people with all abilities to self-care and restore.
 The purpose of this project is to blog, devote, and encourage people who are parenting those with disabilities, or caring for those who are elderly or disabled. It also lifts and encourages self-care of the masses of individuals who are caring for or find they are in the stage of life when they believe others have forgotten them. Aging is lonely and for some devastating or traumatic. The purpose here is to provide resources for self-management, self-care, and restorative rituals and practices that bring comfort and peace.
 I have been in the postition of raising a child with multiple disabilities and the similar but oposite position of caring for an elderly parent and an elderly friend.
 I know firsthand how frustrating and dificult it is to find good resources and suport and to feel alone in the journey.
